@@ -8,7 +8,7 @@
 • @vitorhy_ 
 • luis.lima.ribeiro@escola.pr.gov.br
 
-https://tenor.com/pt-BR/view/happy-celebration-goal-emotions-premier-league-gif-25780749
+![]https://tenor.com/pt-BR/view/happy-celebration-goal-emotions-premier-league-gif-25780749
 
 
 
