@@ -8,7 +8,7 @@
 • @vitorhy_ 
 • luis.lima.ribeiro@escola.pr.gov.br
 
-https://tenor.com/pt-BR/view/cr7man-utd-ronaldo-cristiano-ronaldo-man-utd-ronaldo-cr7-gif-22892826
+https://tenor.com/pt-BR/view/happy-celebration-goal-emotions-premier-league-gif-25780749
 
 
 
